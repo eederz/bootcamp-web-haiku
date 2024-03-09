@@ -1,8 +1,10 @@
 # Buenos días Haiku del gato
 
-En la luz de la mañana,\
-Duermes a pesar de mi **maullido.**\
-Me paro en tu cara.
+Luna de agosto.
+En el portón irrumpe
+la marejada.
+
+Matsuo Basho
 
 ### - Escritor Fantasma
 
